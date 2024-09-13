@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there I'm Juniati👋
 
 - 🔭 I am currently studying as a student at Ujung Pandang State Polytechnic.
 - 🔭 I am currently studying as a participant of Bangkit Academy 2024 Batch 2 - Mobile Development Cohort.
